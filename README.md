@@ -1,6 +1,6 @@
 ### 𝕄𝕪 𝔽𝕚𝕣𝕤𝕥 ℝ𝕖𝕡𝕠𝕤𝕚𝕥𝕠𝕣𝕪
 This is the ***FIRST REPOSITORY*** I have ever made! I'm super excited to get in here and try things out,
-so let's see how things go!
+so let's see how things go! *(I'm a little nervous.)*
 
 ### 𝕋𝕒𝕓𝕝𝕖 𝕠𝕗 ℂ𝕠𝕟𝕥𝕖𝕟𝕥𝕤
 
